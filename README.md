@@ -6,3 +6,4 @@ These are a few of my favourite things:
 * The Simpsons.
 * Columbo.
 * Music.
+* People.
